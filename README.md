@@ -1,4 +1,12 @@
-## Hi there 👋
+casey without the 'e' (cut from the team)
+
+total nutcase
+
+i love music and kingdom hearts!
+
+you probably know me either from myspace (https://spacehey.com/yourkissmightkillme) or a little game called pony town.
+
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ihysj6pl4ozxmhupjlphsoovru&cover_image=false&theme=karaoke&show_offline=false&background_color=121212&interchange=true&profanity=false)](https://github.com/kittinan/spotify-github-profile)
 
 <!--
 **deathcabfor-casey/deathcabfor-casey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
