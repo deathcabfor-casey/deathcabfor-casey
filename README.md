@@ -1,10 +1,10 @@
 casey without the 'e' (cut from the team)
 
-total nutcase
-
-i love music and kingdom hearts!
+total nutcase. i love music and kingdom hearts.
+pony town: usually mtv unplugged 2.0 - dashboard confessional pony or war all the time - thursday pony, lately.
 
 spacehey.com/yourkissmightkillme
+
 xxafterlife.com/xbleedingheartdovex
 
 track my last.fm: https://www.last.fm/user/mxychxnce
