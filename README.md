@@ -2,7 +2,7 @@ casey without the 'e' (cut from the team)
 
 total nutcase. i love music and kingdom hearts.
 
-pony town: usually mtv unplugged 2.0 - dashboard confessional pony or war all the time - thursday pony, lately.
+join xxafterlife.com with invite code "LESSTHANTHREE"!
 
 spacehey.com/yourkissmightkillme
 
