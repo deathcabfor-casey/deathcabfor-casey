@@ -1,14 +1,11 @@
-casey without the 'e' (cut from the team)
+casey without the 'e' (cut from the team) 
+scenester guy. i love music and kingdom hearts.
 
-total nutcase. i love music and kingdom hearts.
+you can join xxafterlife.com with my invite code "LESSTHANTHREE". I hate github, if you need me come see me there instead.
 
-join xxafterlife.com with invite code "LESSTHANTHREE"!
+xxafterlife.com/xheartliesbleedingx
 
-spacehey.com/yourkissmightkillme
-
-xxafterlife.com/xbleedingheartdovex
-
-track my last.fm: https://www.last.fm/user/mxychxnce
+music: https://www.last.fm/user/mxychxnce
 
 <!--
 **deathcabfor-casey/deathcabfor-casey** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
